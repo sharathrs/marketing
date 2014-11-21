@@ -4,11 +4,17 @@ dnjfkjbfs
 
 gg
 dpp
-
-ggggg
-shshs
-ssjs
+g
+gggggg
+shgshs
+ssjgs
 sjshs
-shshs
-:wq!
-ddddgg
+shshgs
+:wq!g
+ddddgggggg
+gg
+g
+g
+g
+
+gg
