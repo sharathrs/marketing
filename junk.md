@@ -3,4 +3,12 @@ b fjhnjf
 dnjfkjbfs
 
 gg
-dddddgg
+dpp
+
+ggggg
+shshs
+ssjs
+sjshs
+shshs
+:wq!
+ddddgg
